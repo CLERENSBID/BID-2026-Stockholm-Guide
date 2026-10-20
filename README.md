@@ -1,1 +1,0 @@
-# BID-2026-Stockholm-Guide
